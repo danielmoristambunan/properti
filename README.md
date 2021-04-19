@@ -1,0 +1,2 @@
+# properti
+Informasi Properti Terbaru
